@@ -1,4 +1,4 @@
-#  
+#  Experience fish it like never before with no-ban fish it Script, the #1 Script. Includes undetectable and auto-upgrade for unbeatable performance.
 
 
 
